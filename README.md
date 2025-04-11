@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @computerdoctortz
-- 👀 I’m interested with field of Cyber Security
+- 👀 I’m interested with Cyber Security and Network Engineering.
 - 📫 How to reach me ...: visit my website to get contact info www.computerdoctortz.co.tz
